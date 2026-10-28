@@ -1,1 +1,1 @@
-🚨 **IMPORTANT**: My official twitter account is [@voynow](https://twitter.com/voynow). Be aware of impersonators. I never have and never will create or endorse any cryptocurrency or meme coins. Report any accounts claiming to be me.
+
